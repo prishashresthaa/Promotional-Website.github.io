@@ -3,11 +3,11 @@
 I am promoting 
 
 About the author of this website 
- Nationality: Canadaian
- Ethnicity: Nepali
- Language: Nepali, Chinese, English
- Birth place: Edmonton
- Full Name: prisha shrestha
+ - [x] Nationality: Canadaian
+ - [x] Ethnicity: Nepali
+ - [x] Language: Nepali, Chinese, English
+ - [ ] Birth place: Edmonton
+ - [ ] Full Name: prisha shrestha
  Culture & Customs Examples
  Religion & Customs, whatever is applicable (answers: what you do at elders' homes, etc.)
  Cultural Food (i.e. images and videos)
