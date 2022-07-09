@@ -3,42 +3,28 @@
 I am promoting 
 
 About the author of this website 
-
-She was born in Edmonton, Canada. Prisha Shrestha, to her friends Sha, is a 16 year old Nepali wo lives with her parents and older brother. She can read, write, and speak Nepali, 
- Nationality: born in Canada
+ Nationality: Canadaian
  Ethnicity: Nepali
- Country (i.e. image, map image)
- Flag (i.e. image)
- Language (i.e. text name, auditory file of speaking something with English translation, YouTube Video with Closed Captions and Translation turned on)
- speak English in classroom, what about other places like home
- Birth place
- Full Name (written in English and in other language)
- Nick names (aka) that friends and family give you
+ Language: Nepali, Chinese, English
+ Birth place: Edmonton
+ Full Name: prisha shrestha
  Culture & Customs Examples
  Religion & Customs, whatever is applicable (answers: what you do at elders' homes, etc.)
  Cultural Food (i.e. images and videos)
  Cultural Celebrations
-Peraonl Ideas
- Hobbies
- Sports
- Habits
- Daily Routines (i.e. during school days, during weekends, during holidays)
- Religion (if this applies)
- Personality
- memory, recognizing patterns, communication skills about ideas
- emotional skills: communicating personal emotion to others verbally and nonverbally, changing behavior based on others' emotions
- interpersonal skills: communication, nurturing others, protecting others
- Music
- Creating music with instruments or code
- Listening to music for entertainment
- Memes illustrating your humor (appropriate for school)
+Personal Ideas
+ Hobbies: Arts and crafts (painting, sculpting, origami, making new things)
+ Sports: Soccer, basketball, flagfootball, handball, figure skating, snowboarding
+ Habits:
+ Daily Routines: plays a competitive sport 6 out of 7 days of the week (except during holidays)
+ Travel: 40 times, ___ coutries.
+ Personality: extrovert, good memory, loves puzzles
+ emotional skills: going in others' shoes and feeling their emotion
+ interpersonal skills: communication, protective of family and friends
+ Intruments: piano, guitar (Listens to music everyday)
  Defining Experiences: major life events you want to share
  Other Defining Experiences: ideas for any part of your life
- Family and Caregivers
- Friends
- Clubs
- Sports
- Other ideas
+ Family: mother, father, brother
 Life at School Ideas
  Answer: How are you involved at QE in clubs, teams, or groups?
  For example, “hanging out with friends” is still a student group
